@@ -4,6 +4,9 @@ Meu nome é Kawan Gabriel, tenho 16 anos, atualmente não faço nada além de cu
 
 
 
+meu anime favorito é dessa lindinha aq, Mieruko-chan
+<img src="https://otakusfanaticos.files.wordpress.com/2022/01/65semtc3adtulo_20220116151629.png">
+
 <!--
 **KawanGabrieel/KawanGabrieel** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
